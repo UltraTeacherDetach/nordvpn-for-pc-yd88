@@ -1,4 +1,4 @@
-# 
+# Enhance Windscribe VPN for PC | Windscribe VPN for Windows with Windscribe VPN for PC | Windscribe VPN for Windows smart Plugin: device-compatibility & end-to-end-encryption, the
 
 
 
